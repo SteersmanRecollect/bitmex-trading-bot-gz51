@@ -1,4 +1,4 @@
-# 
+# bitmex trading bot automatic Algorithm | isolated-margin & high-frequency is the best bitmex trading bot, featuring isolated-margin and high-frequency. Smart, fast, and optimized
 
 
 
